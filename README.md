@@ -1,1 +1,1 @@
-i3 filesso i can acess them from another computer
+uploaded i3 files so i can acess them from another computer
